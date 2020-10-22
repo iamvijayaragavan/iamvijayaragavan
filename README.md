@@ -27,4 +27,4 @@ Here are some ideas to get you started:
 
 😄 Pronouns: he/him/his
 
-⚡ Fun fact: I'm Foodie and Applied Visa to mars 😄 Searching a challanging & competetive environment to work
+⚡ Fun fact: I'm Foodie and Applied Visa to mars 😄 Searching for challanging & competetive environment to work
